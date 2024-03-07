@@ -11,7 +11,7 @@ I am deeply passionate about coding and find joy in solving complex problems and
 
 With a solid foundation in web development, a year of coding experience, and a demonstrated ability to work hard and adapt to new challenges, I am eager to bring my skills and enthusiasm to a dynamic team. I am excited about the opportunity to further develop my expertise and contribute to meaningful projects that make a difference.
 
-[Link Text](https://www.linkedin.com/in/gitonga-nyaga-7ba5a126b/)
+[Linkedin](https://www.linkedin.com/in/gitonga-nyaga-7ba5a126b/)
 
 ---
 
